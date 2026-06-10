@@ -3,4 +3,4 @@
 * 💻 Developer
 * 🚀 AI user
 * 📚 Lifelong Learner
-* 🌱 studen
+* 🌱 studet
